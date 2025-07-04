@@ -1,2 +1,2 @@
 # bitcoin_is_freedom
-Bitcoin rants!
+Freedom to study what I like, work as I wish and spend as I want.
